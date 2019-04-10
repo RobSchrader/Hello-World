@@ -2,4 +2,4 @@
 
 The World
 
-The world can be dull but often times it is very shinney and bright like the sun (the every changing world).
+The world can be dull but often times it is very shiny and bright like the sun (the ever changing world).
